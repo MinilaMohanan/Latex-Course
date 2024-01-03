@@ -5,3 +5,4 @@
 📅 Graduated with a B.Sc. in Mathematics in 2021, equipped with not only a solid foundation in mathematical concepts but also a proficiency in LaTeX for effective communication and presentation of mathematical ideas.
 
 Excited for the next chapter and applying these skills in meaningful ways! 🚀 #LaTeX #Mathematics #GraduationAchievement #ContinuousLearning
+https://www.linkedin.com/in/minila-k-m-0b7199263/recent-activity/all/
